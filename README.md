@@ -1,2 +1,1 @@
-# Proposal-of-vlobasa
-VLOBASA
+ http://rakibulhasanreday.me/Proposal-of-vlobasa/
